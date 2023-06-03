@@ -14,3 +14,6 @@
 - покушать в заведении
 ## Автомобильное
 - компрессор Беркут - https://berkut-russia.ru/avtomobilnyj-kompressor-berkut-spec-3m
+- аптечка в машину типа такой https://www.wildberries.ru/catalog/139460594/detail.aspx
+- органайзер в багажник
+-
