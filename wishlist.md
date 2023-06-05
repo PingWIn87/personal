@@ -6,6 +6,7 @@
 - видеорегистратор для мото 
 - аэрографию на бак
 - восстановить хром на всех деталях
+- комплект термобелья https://ultramaxcell.com/man/tproduct/394245914-673695641031-kompressionnaya-kofta-muzhskaya  https://ultramaxcell.com/man/tproduct/394245914-291776802731-leginsi-polnoi-dlini-muzhskie
 ## Аудио
 - конденсаторный микрофон с XLR
 ## Мелочи
